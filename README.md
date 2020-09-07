@@ -1,0 +1,2 @@
+# Jurnal-Ilmiah-PLATAX
+Platax Science Journal is one of the journals with global competitiveness in producing works through research in science and technology and innovation in fisheries and marine, especially in association with aquatic resources management individually done or in group and in the scope of coastal area management, conservation, ecotourisms, and bioecology of aquatic living resources.
